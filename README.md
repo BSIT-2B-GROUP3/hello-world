@@ -8,4 +8,4 @@ Christine Lyka De Vera,
 Raven Lee Garucha,
 Vincent Mendoza,
 Kevin Christopher Morco,
-Ruff Albert Soto,
+Ruff Albert Soto
