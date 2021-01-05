@@ -2,7 +2,7 @@
 
 Group 3 Members
 
-Jomarie Canaria,
+Jomarie Canaria (Group Leader),
 Raesean Amoranto,
 Christine Lyka De Vera,
 Raven Lee Garucha,
